@@ -1,1 +1,0 @@
-# Business-Intelligence-Mini-project
